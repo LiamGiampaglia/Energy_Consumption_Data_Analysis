@@ -58,7 +58,7 @@
 
 ###
 
-<p align="left">www.linkedin.com/in/liam-giampaglia-amei-98936b172</p>
+<p align="left">www.linkedin.com/in/liam-giampaglia</p>
 
 ###
 
